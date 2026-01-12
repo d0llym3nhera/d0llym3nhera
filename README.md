@@ -1,33 +1,22 @@
-## ʚ・ ୨୧ ABOUT MEEE ⸝⸝ ♡<BR>
+## ʚ・ ୨୧ ABOUT MEEE ⸝⸝ ♡🐇<BR>
+<BR>
 <p
-align="center"> <IMG SRC="https://github.com/user-attachments/assets/b122f01e-ddee-405f-9a47-a205e391197f"> <p
+align="center"> <IMG SRC="https://64.media.tumblr.com/d532990d33f1b1dedc2859d50b23c547/0cfdd68d226e0408-f9/s400x600/522e7b0eed15b5958ab45622f370a0ecfeb40205.pnj"> <p
+<BR>
+<BR>
+<BR>
+・┆✦ʚ♡ɞ✦ ┆・<BR>
 <BR>
 <BR>
 <BR>
 <BR>
- ︵⋆ ˚｡⋆୨𖥂୧⋆ ˚｡⋆ ︶<BR>
 <BR>
+<p align="center">꒰ɞ⠀.⠀Jirai kei ♡ ﾉ⠀*magical* girl .ᐟ ‹𝟥</p>
 <BR>
-<BR>
-<BR>
-<BR>
-╭★☆∘∙⊱⋅•⋅<BR>
-⁠ˋ°•\*⁀➷ name: Menhera<BR>
-⁠<BR>
-⁠ˏˋ°•\*⁀➷ pronouns: she/her<BR>
-⁠<BR>
-⁠ˏˋ°•\*⁀➷ likes: cool ppl/j ,, fandoms, snacks, fandoms, pink, drawing, music, horror. digital horror, jirai kei, fashion !!!!<BR>
-⁠<BR>
-⁠ˏˋ°•\*⁀➷ dislikes: ppl/j racists, ppl who dont listen, mostly ppl man..<BR>
-⁠<BR>
-⁠ˏˋ°•\*⁀➷ dni: narcisists, pushies, pedo's, etc.. ppl who spam my dms and are disrespectful .. if its jokes or silly HMMIIII???????<BR>
-⁠<BR>
-⁠ˏˋ°•\*⁀➷ int: the opposite of what i said, and just ppl who r willing to listen and or are in fandoms im in, or are just !?@#$% ITS FINE LOWK<BR>
-<BR>
-⁠ˏˋ°•\*⁀➷ facts about me: i almost died in a ride?? I DONT KNOW LMAO <BR>
-<BR>
-⁠ˏˋ°•\*⁀➷ random fact about me: jirai kei.<BR>
-<BR>
-⁠『••✎••』TYYY ALL SMSMSMSMS I LOVE YOU AND THANK UUU FOR GETTTING TO KNOW ME WINK WINK<BR>
-<BR>
-╰★⁠☆∘∙⊱⋅•⋅
+<p align="center">⋆.˚ .𖥔˚  <I><u>bunny</u> obsession</I> .ᐟ.ᐟ 𐔌՞. .՞𐦯</p>
+ <BR>
+<p align="center">₍ᐢ. .ᐢ₎ ₊˚⊹♡ whatever my profile is, is the phase I'm in .ᐟ౨ৎ</p>
+ <BR>
+<p align="center">❀•°⪩•⪨°•❀</p>
+<p align="center">┊　　┊</p>
+<p align="center">★　 ☆</p>
